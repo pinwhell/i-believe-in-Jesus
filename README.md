@@ -1,1 +1,1 @@
-Jesus Christ Of Nazareth Is Eternal, In The Beginning He Was With God And He Was God. John 1:1
+i personally believe Jesus Christ Is Eternal John 1:1
